@@ -1,0 +1,1 @@
+# QA_SEP22_KachurYurii
